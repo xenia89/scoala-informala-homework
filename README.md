@@ -1,2 +1,2 @@
 # scoala-informala-homework
-Xenia
+Petrea Elena Xenia
